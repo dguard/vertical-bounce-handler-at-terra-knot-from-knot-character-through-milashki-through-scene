@@ -1,5 +1,9 @@
 ### vertical-bounce-handler-at-terra-knot-from-knot-character-through-milashki
 
+* \ 
+
+* брат \ си \ в dior \ кг/см3
+
 * \
 
 * re?
