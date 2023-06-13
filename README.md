@@ -2,6 +2,53 @@
 
 * \
 
+* no small fit
+
+* даже несмотря на то что один из слотов оказался stickd-from-bottom \ кто-то называет его заточенных под ценителей \ но мы просто напишем yep \ gamer ! use enough memory
+
+* character-viewport позволяет работать больше чем с 2мя direction\ без привязки к past girl-fellow
+
+* именно поэтому был написан vertical-bounce-handler и character-viewport
+
+* from past girl-fellow \ подождите, подождите \ но здесь только два слота
+
+* we keep лонги from mister president, mister lavrov and shoigu \ and keep knot
+
+* from past girl-fellow \ подождите, подождите \ но я хочу сравнить у кого длиннее и только потом сделать выбор
+
+* доказательство примерно следующее \ пишешь в гос\услуги что тебе нужны деньги \ тебе говорят \ create kids \ and money yours
+
+* Пару дней назад нашли a temple for the sun \ место where straight projection from the sun from a few directions when you are walkin\ around
+
+* На прошлой неделе был speech from prophet from abbabstvo \ качественный
+
+* Пишем дальше
+
+* \
+
+* И думаю \ ! вот \ ! \ ! что здесь природа более безопасная чем в amazon
+
+* Против течения \
+
+*
+
+* Плыву дальше \
+
+*
+
+* А когда "стаей" летали \ то все дружно смотрели как я плаваю
+
+* И под конец переплытия речки один из eagle видит пример \ ! и тоже начинает что-то делать \ охотится \
+
+* Прохладная вода \
+
+* 
+
+* Регулярные тренировки
+
+
+* \
+
 * Работаем \ Compute from draft
 
 * Тренируемся \ продолжаем заплывы
